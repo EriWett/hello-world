@@ -1,4 +1,6 @@
-# hello-world
-Hello world is the most advanced software ever
+# hello-woooorld
+Hello world is the least advanced software ever
 
-How come republicans back an incredible idiot like Trump?
+How come republicans back an incredible bafoon idiot like Trump?
+
+completely bizarre
